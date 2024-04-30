@@ -1,1 +1,0 @@
-# LogoMovilDelvaccri83b
